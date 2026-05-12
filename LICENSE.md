@@ -1,4 +1,4 @@
-#  
+#  my avatar Scripts secure is the best my avatar Script, featuring speed and no cooldown. Safe and powerful for all your needs.
 
 
 
